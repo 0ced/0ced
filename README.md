@@ -1,7 +1,6 @@
-# Hello, i'm cedkeChat
-## I'm Wii U Developer and Little PS3 Developer.
+# Hello, i'm theforstgame
 
-# Join My Discord Server
+# click on the image below to join my discord server.
 [![discord](https://i.imgur.com/NC9aqcD.png)](https://discord.gg/HKTrcYs3az)
 
 # Stats
